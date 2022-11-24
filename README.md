@@ -17,7 +17,7 @@ I'm Stewart Millar, software engineering student and currently in situ as a tech
 
 - Robots, the more human-passable the better
 - Guitars, music gear in general and digital-audio processing. Writing and playing music, which was easier before I developed pretty crippling RSI. 
-- Aliens 
+- Aliens (I want to believe))
 
 ## Feel free to get in touch :coffee:
 - 📫 Contact: thomas.stewart.millar@gmail.com
